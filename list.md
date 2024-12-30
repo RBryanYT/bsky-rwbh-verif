@@ -4,7 +4,7 @@ All non-blue words have not been said by [the bot](https://bsky.app/profile/rwbh
 
 ---
 
-[What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) with these [homies](https://bsky.app/profile/rwbh.rbryan.me/post/3lecxl4qhbc2t), dissing my girl?
+[What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) [with](https://bsky.app/profile/rwbh.rbryan.me/post/3leh2dqiqvo2h) these [homies](https://bsky.app/profile/rwbh.rbryan.me/post/3lecxl4qhbc2t), dissing my girl?
 
 Why do [they](https://bsky.app/profile/rwbh.rbryan.me/post/3le6kioli4426) [gotta](https://bsky.app/profile/rwbh.rbryan.me/post/3le6xvxrkad2z) [front?](https://bsky.app/profile/rwbh.rbryan.me/post/3lecquydyeq2m)
 
@@ -20,7 +20,7 @@ But [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) [know](htt
 
 [Woo-hoo](https://bsky.app/profile/rwbh.rbryan.me/post/3leaki2lpil23)
 
-[And](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) I [know](https://bsky.app/profile/rwbh.rbryan.me/post/3lecua73c4v2w) you're mine
+[And](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) [I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [know](https://bsky.app/profile/rwbh.rbryan.me/post/3lecua73c4v2w) you're mine
 
 [Woo-hoo](https://bsky.app/profile/rwbh.rbryan.me/post/3leaki2lpil23)
 
@@ -28,21 +28,21 @@ But [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) [know](htt
 
 ---
 
-Ooh-wee-hoo, I look [just](https://bsky.app/profile/rwbh.rbryan.me/post/3le7flrbbon26) like Buddy [Holly](https://bsky.app/profile/rwbh.rbryan.me/post/3leblyq3m3s2f)
+Ooh-wee-hoo, [I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [look](https://bsky.app/profile/rwbh.rbryan.me/post/3lehyjrfjgk2w) [just](https://bsky.app/profile/rwbh.rbryan.me/post/3le7flrbbon26) like Buddy [Holly](https://bsky.app/profile/rwbh.rbryan.me/post/3leblyq3m3s2f)
 
 [Oh-oh,](https://bsky.app/profile/rwbh.rbryan.me/post/3lec4rcafxb2y) [and](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) you're Mary Tyler Moore
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [what](https://bsky.app/profile/rwbh.rbryan.me/post/3leb3adjfgy2z) [they](https://bsky.app/profile/rwbh.rbryan.me/post/3le6kioli4426) say [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) us anyway
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [what](https://bsky.app/profile/rwbh.rbryan.me/post/3leb3adjfgy2z) [they](https://bsky.app/profile/rwbh.rbryan.me/post/3le6kioli4426) say [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) us anyway
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
 
 ---
 
 [Don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) ever fear, I'm always [near](https://bsky.app/profile/rwbh.rbryan.me/post/3leant7khml2h)
 
-I [know](https://bsky.app/profile/rwbh.rbryan.me/post/3lecua73c4v2w) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m) [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) need help
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [know](https://bsky.app/profile/rwbh.rbryan.me/post/3lecua73c4v2w) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m) [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) need help
 
-Your [tongue](https://bsky.app/profile/rwbh.rbryan.me/post/3le6r7yczka2n) is twisted, your [eyes](https://bsky.app/profile/rwbh.rbryan.me/post/3leadrawhae26) are slit
+Your [tongue](https://bsky.app/profile/rwbh.rbryan.me/post/3le6r7yczka2n) is [twisted,](https://bsky.app/profile/rwbh.rbryan.me/post/3leimniwisa2k) your [eyes](https://bsky.app/profile/rwbh.rbryan.me/post/3leadrawhae26) are slit
 
 [You](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) need a guardian
 
@@ -54,7 +54,7 @@ Your [tongue](https://bsky.app/profile/rwbh.rbryan.me/post/3le6r7yczka2n) is twi
 
 [Woo-hoo](https://bsky.app/profile/rwbh.rbryan.me/post/3leaki2lpil23)
 
-[And](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) I [know](https://bsky.app/profile/rwbh.rbryan.me/post/3lecua73c4v2w) you're mine
+[And](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) [I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [know](https://bsky.app/profile/rwbh.rbryan.me/post/3lecua73c4v2w) you're mine
 
 [Woo-hoo](https://bsky.app/profile/rwbh.rbryan.me/post/3leaki2lpil23)
 
@@ -62,15 +62,15 @@ Your [tongue](https://bsky.app/profile/rwbh.rbryan.me/post/3le6r7yczka2n) is twi
 
 ---
 
-Ooh-wee-hoo, I look [just](https://bsky.app/profile/rwbh.rbryan.me/post/3le7flrbbon26) like Buddy [Holly](https://bsky.app/profile/rwbh.rbryan.me/post/3leblyq3m3s2f)
+Ooh-wee-hoo, [I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [look](https://bsky.app/profile/rwbh.rbryan.me/post/3lehyjrfjgk2w) [just](https://bsky.app/profile/rwbh.rbryan.me/post/3le7flrbbon26) like Buddy [Holly](https://bsky.app/profile/rwbh.rbryan.me/post/3leblyq3m3s2f)
 
 [Oh-oh,](https://bsky.app/profile/rwbh.rbryan.me/post/3lec4rcafxb2y) [and](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) you're Mary Tyler Moore
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [what](https://bsky.app/profile/rwbh.rbryan.me/post/3leb3adjfgy2z) [they](https://bsky.app/profile/rwbh.rbryan.me/post/3le6kioli4426) say [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) us anyway
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [what](https://bsky.app/profile/rwbh.rbryan.me/post/3leb3adjfgy2z) [they](https://bsky.app/profile/rwbh.rbryan.me/post/3le6kioli4426) say [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) us anyway
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
 
 ---
 
@@ -80,28 +80,28 @@ Another big [bang](https://bsky.app/profile/rwbh.rbryan.me/post/3le6ntzwbn426) [
 
 [Oh](https://bsky.app/profile/rwbh.rbryan.me/post/3leah4rl2fm2h) no! [What](https://bsky.app/profile/rwbh.rbryan.me/post/3leb3adjfgy2z) do [we](https://bsky.app/profile/rwbh.rbryan.me/post/3lebspgjoo22w) do?
 
-[Don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) look now, but I [lost](https://bsky.app/profile/rwbh.rbryan.me/post/3lebpe4v42c2n) my [shoe](https://bsky.app/profile/rwbh.rbryan.me/post/3leck6fnp7x24)
+[Don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) [look](https://bsky.app/profile/rwbh.rbryan.me/post/3lehyjrfjgk2w) now, but [I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [lost](https://bsky.app/profile/rwbh.rbryan.me/post/3lebpe4v42c2n) my [shoe](https://bsky.app/profile/rwbh.rbryan.me/post/3leck6fnp7x24)
 
-I can't run, [and](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) I can't kick
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) can't run, [and](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) [I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) can't kick
 
 [What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter babe, are [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) feeling sick?
 
 [What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter, [what's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter, [what's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter [you?](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f)
 
-[What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter babe, are [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) feeling blue?
+[What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter babe, are [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) feeling [***blue?***](https://bsky.app/profile/rwbh.rbryan.me/post/3leetxirftd2m)
 
 ---
 
-Ooh-wee-hoo, I look [just](https://bsky.app/profile/rwbh.rbryan.me/post/3le7flrbbon26) like Buddy [Holly](https://bsky.app/profile/rwbh.rbryan.me/post/3leblyq3m3s2f)
+Ooh-wee-hoo, [I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [look](https://bsky.app/profile/rwbh.rbryan.me/post/3lehyjrfjgk2w) [just](https://bsky.app/profile/rwbh.rbryan.me/post/3le7flrbbon26) like Buddy [Holly](https://bsky.app/profile/rwbh.rbryan.me/post/3leblyq3m3s2f)
 
 [Oh-oh,](https://bsky.app/profile/rwbh.rbryan.me/post/3lec4rcafxb2y) [and](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) you're Mary Tyler Moore
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [what](https://bsky.app/profile/rwbh.rbryan.me/post/3leb3adjfgy2z) [they](https://bsky.app/profile/rwbh.rbryan.me/post/3le6kioli4426) say [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) us anyway
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [what](https://bsky.app/profile/rwbh.rbryan.me/post/3leb3adjfgy2z) [they](https://bsky.app/profile/rwbh.rbryan.me/post/3le6kioli4426) say [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) us anyway
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
 
-I [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
+[I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) [don't](https://bsky.app/profile/rwbh.rbryan.me/post/3lebbwt3rre2t) care [about](https://bsky.app/profile/rwbh.rbryan.me/post/3le7cahi4e62h) [that](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m)
