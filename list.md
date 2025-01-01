@@ -1,14 +1,14 @@
 All non-blue words have not been said by [the bot](https://bsky.app/profile/rwbh.rbryan.me)
 
-*Last updated `12/30/2024` at `12:56AM EST`*
+*Last updated `12/31/2024` at `7:48PM EST`*
 
 ---
 
-[What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) [with](https://bsky.app/profile/rwbh.rbryan.me/post/3leh2dqiqvo2h) these [homies](https://bsky.app/profile/rwbh.rbryan.me/post/3lecxl4qhbc2t), dissing my girl?
+[What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) [with](https://bsky.app/profile/rwbh.rbryan.me/post/3leh2dqiqvo2h) [these](https://bsky.app/profile/rwbh.rbryan.me/post/3lemzhdt2tp2y) [homies,](https://bsky.app/profile/rwbh.rbryan.me/post/3lecxl4qhbc2t) dissing my girl?
 
 Why do [they](https://bsky.app/profile/rwbh.rbryan.me/post/3le6kioli4426) [gotta](https://bsky.app/profile/rwbh.rbryan.me/post/3le6xvxrkad2z) [front?](https://bsky.app/profile/rwbh.rbryan.me/post/3lecquydyeq2m)
 
-[What](https://bsky.app/profile/rwbh.rbryan.me/post/3leb3adjfgy2z) did [we](https://bsky.app/profile/rwbh.rbryan.me/post/3lebspgjoo22w) ever do [to](https://bsky.app/profile/rwbh.rbryan.me/post/3leaxuxqjfl2t) these guys
+[What](https://bsky.app/profile/rwbh.rbryan.me/post/3leb3adjfgy2z) did [we](https://bsky.app/profile/rwbh.rbryan.me/post/3lebspgjoo22w) ever do [to](https://bsky.app/profile/rwbh.rbryan.me/post/3leaxuxqjfl2t) [these](https://bsky.app/profile/rwbh.rbryan.me/post/3lemzhdt2tp2y) guys
 
 [That](https://bsky.app/profile/rwbh.rbryan.me/post/3lecnjhskxv2m) made [them](https://bsky.app/profile/rwbh.rbryan.me/post/3leaujqlxem26) so violent?
 
@@ -84,7 +84,7 @@ Another big [bang](https://bsky.app/profile/rwbh.rbryan.me/post/3le6ntzwbn426) [
 
 [I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) can't run, [and](https://bsky.app/profile/rwbh.rbryan.me/post/3lear6htlai2q) [I](https://bsky.app/profile/rwbh.rbryan.me/post/3leicl72ctq2c) can't kick
 
-[What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter babe, are [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) feeling sick?
+[What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter babe, are [you](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f) feeling [sick?](https://bsky.app/profile/rwbh.rbryan.me/post/3lekiyhsuzr2q)
 
 [What's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter, [what's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter, [what's](https://bsky.app/profile/rwbh.rbryan.me/post/3leca4hwega2q) the matter [you?](https://bsky.app/profile/rwbh.rbryan.me/post/3leb6lpijxl2f)
 
